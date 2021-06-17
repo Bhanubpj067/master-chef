@@ -1,1 +1,1 @@
-this is a recipe makiking pani puri 
+this is a recipe making pani puri 
